@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @arsanychanel
+- 👋 Hi, I’m @arsanymagdi
 - 👀 I’m interested in codes
 - 🌱 I’m currently learning codes
